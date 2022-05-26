@@ -10,7 +10,7 @@
 - 😄 Pronouns: He/Him <br>
 - ⚡ Fun fact: Music 🎧 is what that drives me!! <br>
 - 🛒 Buy my NFTs, [MyNFTs](https://testnets.opensea.io/assets/goerli/0x0b3f212444b45a78a27fc02a539dc5257a37412d/8) 🤣
-
+- ![near](https://cdn.discordapp.com/emojis/544761439261425664.webp?size=16&quality=lossless)
 ![yeye](https://raw.githubusercontent.com/seanprashad/slackmoji/master/emoji/blob/blob-dundundun-gif.gif)
 
 ## Skills 🚀
